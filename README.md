@@ -1,0 +1,2 @@
+# aydabus
+portfolio saya
